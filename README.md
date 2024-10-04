@@ -1,5 +1,5 @@
 # 💫 About Me:
-Technical Head at 90.8 Mhz FMCRS, GNDEC <br>Creative & Social Media Team Head at ITIAN Club, GNDEC <br>Core Team Cultural Committee, GNDEC<br>Web Developer <br>Video Editor <br>Core Team GDG Ludhiana
+3rd Year IT Student at Guru Nanak Dev Engineering College (GNDEC)<br>Technical Head at 90.8 Mhz FMCRS, GNDEC <br>Creative & Social Media Team Head at ITIAN Club, GNDEC <br>Core Team Cultural Committee, GNDEC<br>Internal Complaint Committee Member, GNDEC<br>Web Developer <br>Video Editor <br>Core Team GDG Ludhiana
 
 
 ## 🌐 Socials:
